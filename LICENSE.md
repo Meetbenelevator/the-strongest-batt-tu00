@@ -1,4 +1,4 @@
-#  
+#  Experience the strongest battlegrounds like never before with new the strongest battlegrounds Script, the #1 Script. Includes aimbot and no cooldown
 
 
 
